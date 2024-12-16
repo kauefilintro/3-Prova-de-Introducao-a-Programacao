@@ -1,0 +1,1 @@
+Acho que deixei umas três questões professor. Por conta do tempo para fazer, correria, algumas eu realmente não sabia, outras eu nem tentei... mas tá entregue! Espero ter matérias com o senhor no semestre que vem. Valeu chefe!
